@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola soy Marcela! Estudiante de la Tec. Universitaria en Programación UTN
+Hola soy Marcela! Estudiante de la Tec. Universitaria en Programación UTN FRSR
 
 
 ## 🌐 Socials:
